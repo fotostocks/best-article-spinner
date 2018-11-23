@@ -38,6 +38,6 @@ What do you think of this incredible journey?"
 ### Note
 Use this at your own risk, because it depends on third parties. Also consider using a proxy.
 
-https://best-spinner.com
+best-spinner.com
 [Best free article rewriter and spinner](https://best-spinner.com)
 
